@@ -1,1 +1,1 @@
-https://1r0nn.github.io/MyWebsites/paramount/paramount.html
+https://1r0nn.github.io/MyWebsites/paramount/index.html
